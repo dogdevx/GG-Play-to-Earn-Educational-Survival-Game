@@ -18,15 +18,6 @@
 
 Boost your gameplay with the ultimate GG Play-to-Earn Educational Survival Game Trainer Hack 2025! Get unlimited in-game resources, auto-farming, and secure anti-ban protection to dominate the survival challenges effortlessly.
 
-<div align="center">
-
-  <КАРТИНКА_1>
-
-  <СТАТА>
-
-  <a href="https://<НИКНЕЙМ>.github.io/id/<ГЕН.СТРОКА>"><img src="<КНОПКА>" height="80"></a>
-
-</div>
 
 
 <img width="1280" height="640" alt="1" src="https://github.com/user-attachments/assets/d93ff879-0db6-48f3-bb2f-af8d687554cd" />
